@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jarebear6136
 - 📫 How to reach me: 
-INSTAGRAM: the_jarebear6136
+
 
 
 <!---
